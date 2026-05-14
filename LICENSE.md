@@ -1,4 +1,4 @@
-# 
+# Get the ultimate meme coin sniper bot with high-frequency Arbitrage Bot for meme coin sniper bot | contract-verification & MEV-detection. Featuring contract-verification and
 
 
 
